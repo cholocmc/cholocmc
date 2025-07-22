@@ -8,6 +8,6 @@ and TikTok on the side: [cholocmc](https://www.tiktok.com/@cholocmc)
 
 Strava: Carlos Miguel Canonizado 💪
 
-## I am a proud certified Molchanovs Freediver (W1)
+## I am a proud certified Molchanovs Freediver (W1) 🧜‍♂️
 
 affiliate code: COMING SOON
