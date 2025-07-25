@@ -2,11 +2,9 @@
 
 but you can also call me Cholo
 
-## Frontend 🖥️ | Cats 🐈‍⬛ | Freediving 🔱
+## Content Creator / Freediver / Singer / Dancer / etc.
 
-and TikTok on the side: [cholocmc](https://www.tiktok.com/@cholocmc)
-
-Strava: **Carlos Miguel Canonizado** 💪
+follow me on all of my socials: **cholocmc**, my latest venture is [YouTube](https://www.youtube.com/@cholocmc)!
 
 ## I am a proud certified Molchanovs Freediver and Affiliate (W1) 🧜‍♂️
 
