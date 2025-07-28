@@ -9,6 +9,13 @@ follow me on all of my socials: **cholocmc**, my latest venture is [YouTube](htt
 ## I am a proud certified Molchanovs Freediver and Affiliate (W1) 🧜‍♂️
 
 affiliate code: **CHOLOCMC**
+- For Online Store
+- 10% off 23 collections
+- No minimum purchase requirement
+- All customers
+- No usage limits
+- Can’t combine with other discounts
+- Active from Jul 25 to Jul 25, 2026
 
 <img width="1200" height="675" alt="Untitled design" src="https://github.com/user-attachments/assets/d15d98a6-5782-4fd4-9625-08374a00abe3" />
 
