@@ -27,6 +27,7 @@ affiliate code: **CHOLOCMC**
 - https://www.threads.com/@cholocmc
 - https://www.instagram.com/cholocmc
 - https://www.youtube.com/@cholocmc
+- https://www.linkedin.com/in/cholocmc
 
 ## Music Covers!!! 🤘
 
