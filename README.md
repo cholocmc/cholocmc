@@ -1,10 +1,12 @@
-# Hi, I'm Carlos! 👋
+<img width="1055" height="962" alt="image" src="https://github.com/user-attachments/assets/2df042fa-51d2-4609-a2ae-c41e3f66e8b6" /># Hi, I'm Carlos! 👋
 
 but you can also call me Cholo
 
 ## Content Creator / Freediver / Singer / Dancer / etc. 😎
 
 follow me on all of my socials: **cholocmc**, my latest venture is [YouTube](https://www.youtube.com/@cholocmc)!
+
+Like my music taste and covers (+ original music soon)? Check me out on [Spotify](https://open.spotify.com/user/12156548767?si=b7b3fb6f82704d98)!
 
 ## I am a proud certified Molchanovs Freediver and Affiliate (W1) 🧜‍♂️
 
