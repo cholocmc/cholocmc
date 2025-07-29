@@ -34,7 +34,7 @@ Do you like my music taste and covers (plus original music soon)? Check me out o
 - https://www.instagram.com/cholocmc
 - https://www.youtube.com/@cholocmc
 - https://www.linkedin.com/in/cholocmc
-- https://molchanovs.com/collections/all-products
+- https://open.spotify.com/user/12156548767
 
 ## Music Covers!!! 🤘
 
