@@ -14,7 +14,7 @@ Do you like my music taste and covers (plus original music soon)? Check me out o
 
 ## I am a proud certified Molchanovs Freediver and Affiliate (W1) 🧜‍♂️
 
-affiliate code: **CHOLOCMC**
+[affiliate code: **CHOLOCMC**](https://molchanovs.com/collections/all-products?srsltid=AfmBOopl6ENsGXtpnAUofcy6o-KNX_gSvJ5d3UJ5_LP09Wr_knsu4nTM)
 - For Online Store
 - 10% off 23 collections
 - No minimum purchase requirement
