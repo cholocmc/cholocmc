@@ -39,3 +39,4 @@ Do you like my music taste and covers (plus original music soon)? Check me out o
 ## Music Covers!!! 🤘
 
 🎸 https://www.youtube.com/@cholocmc 🎸
+🎹 https://open.spotify.com/user/12156548767 🎹
