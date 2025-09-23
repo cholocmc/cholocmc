@@ -6,11 +6,9 @@ but you can also call me Cholo
 
 follow me on all of my socials: **cholocmc**, my latest venture is [YouTube](https://www.youtube.com/@cholocmc)!
 
-<img width="603" height="233" alt="image" src="https://github.com/user-attachments/assets/66046315-9590-492d-9ff2-322802cbf249" />
+<img width="1436" height="467" alt="image" src="https://github.com/user-attachments/assets/1871c9b6-c599-43b1-9816-ee57a1442885" />
 
 Do you like my music taste and covers (plus original music soon)? Check me out on [Spotify](https://open.spotify.com/user/12156548767?si=b7b3fb6f82704d98)!
-
-<img width="878" height="261" alt="image" src="https://github.com/user-attachments/assets/8769a58d-2edd-4bf8-910d-bfe4eb9f84f4" />
 
 ## I am a proud certified Molchanovs Freediver and Affiliate (W1) 🧜‍♂️
 
