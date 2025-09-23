@@ -8,7 +8,7 @@ follow me on all of my socials: **cholocmc**, my latest venture is [YouTube](htt
 
 <img width="1436" height="467" alt="image" src="https://github.com/user-attachments/assets/1871c9b6-c599-43b1-9816-ee57a1442885" />
 
-Do you like my music taste and covers (plus original music soon)? Check me out on [Spotify](https://open.spotify.com/user/12156548767?si=b7b3fb6f82704d98)!
+Do you like my music taste and covers (plus original music soon)? Check me out on [Spotify](https://open.spotify.com/user/12156548767)!
 
 ## I am a proud certified Molchanovs Freediver and Affiliate (W1) 🧜‍♂️
 
