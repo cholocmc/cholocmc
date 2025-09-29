@@ -1,16 +1,16 @@
 # Hi, I'm Carlos! 👋
 
-but you can also call me Cholo
+But you can also call me Cholo
 
 ## Content Creator / Freediver / Singer / Dancer / etc. 😎
 
-follow me on all of my socials: **CHOLOCMC**, my latest venture is [YouTube](https://www.youtube.com/@cholocmc)!
+Follow me on all of my socials: **CHOLOCMC**, as well as [Spotify](https://open.spotify.com/artist/4LAtQG3Q0uA6CkD1gHo6ia)
 
 <img width="1436" height="467" alt="image" src="https://github.com/user-attachments/assets/1871c9b6-c599-43b1-9816-ee57a1442885" />
 
 ## I am a proud certified Molchanovs Freediver and Affiliate (W1) 🧜‍♂️
 
-[affiliate code: **CHOLOCMC**](https://molchanovs.com/collections/all-products?srsltid=AfmBOopl6ENsGXtpnAUofcy6o-KNX_gSvJ5d3UJ5_LP09Wr_knsu4nTM)
+[Affiliate code: **CHOLOCMC**](https://molchanovs.com/collections/all-products?srsltid=AfmBOopl6ENsGXtpnAUofcy6o-KNX_gSvJ5d3UJ5_LP09Wr_knsu4nTM)
 - For Online Store
 - 10% off 23 collections
 - No minimum purchase requirement
@@ -32,7 +32,9 @@ follow me on all of my socials: **CHOLOCMC**, my latest venture is [YouTube](htt
 - https://www.linkedin.com/in/cholocmc
 - https://open.spotify.com/artist/4LAtQG3Q0uA6CkD1gHo6ia
 
-## Music Covers!!! 🤘
+## Original Music and Covers 🤘
 
-- 🎸 https://www.youtube.com/@cholocmc 🎸
-- 🎹 https://open.spotify.com/artist/4LAtQG3Q0uA6CkD1gHo6ia 🎹
+- https://www.youtube.com/@cholocmc
+- https://open.spotify.com/artist/4LAtQG3Q0uA6CkD1gHo6ia
+
+<img width="742" height="724" alt="image" src="https://github.com/user-attachments/assets/86e8e2b2-bbb6-4e41-a4be-63cda9bfb7a4" />
