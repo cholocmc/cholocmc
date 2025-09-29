@@ -8,8 +8,6 @@ follow me on all of my socials: **CHOLOCMC**, my latest venture is [YouTube](htt
 
 <img width="1436" height="467" alt="image" src="https://github.com/user-attachments/assets/1871c9b6-c599-43b1-9816-ee57a1442885" />
 
-Do you like my music taste and covers (plus original music)? Check me out on [Spotify](https://open.spotify.com/artist/4LAtQG3Q0uA6CkD1gHo6ia)!
-
 ## I am a proud certified Molchanovs Freediver and Affiliate (W1) 🧜‍♂️
 
 [affiliate code: **CHOLOCMC**](https://molchanovs.com/collections/all-products?srsltid=AfmBOopl6ENsGXtpnAUofcy6o-KNX_gSvJ5d3UJ5_LP09Wr_knsu4nTM)
