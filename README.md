@@ -37,4 +37,4 @@ Follow me on all of my socials: **CHOLOCMC**, as well as [Spotify](https://open.
 - https://www.youtube.com/@cholocmc
 - https://open.spotify.com/artist/4LAtQG3Q0uA6CkD1gHo6ia
 
-<img width="742" height="724" alt="image" src="https://github.com/user-attachments/assets/86e8e2b2-bbb6-4e41-a4be-63cda9bfb7a4" />
+<img width="1018" height="361" alt="image" src="https://github.com/user-attachments/assets/ad7fcae6-1367-4d86-bade-c0d34e3cba86" />
