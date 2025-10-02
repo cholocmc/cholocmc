@@ -19,7 +19,7 @@ Follow me on all of my socials: **CHOLOCMC**, as well as [Spotify](https://open.
 - Can’t combine with other discounts
 - Active from Jul 25 to Jul 25, 2026
 
-<img width="1200" height="675" alt="Untitled design" src="https://github.com/user-attachments/assets/d15d98a6-5782-4fd4-9625-08374a00abe3" />
+<img width="1600" height="907" alt="molchabanner" src="https://github.com/user-attachments/assets/184eeff3-f319-4b35-b969-f8b6cfcad28a" />
 
 ## Socials 🌐
 
