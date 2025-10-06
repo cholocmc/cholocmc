@@ -1,6 +1,6 @@
 # Hi, I'm Carlos! 👋
 
-But you can also call me Cholo
+But you can also call me [Cholo](https://www.cholocmc.com/)
 
 ## Content Creator / Freediver / Singer / Dancer / etc. 😎
 
