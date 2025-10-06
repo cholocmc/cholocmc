@@ -38,3 +38,7 @@ Follow me on all of my socials: **CHOLOCMC**, as well as [Spotify](https://open.
 - https://open.spotify.com/artist/4LAtQG3Q0uA6CkD1gHo6ia
 
 <img width="1018" height="361" alt="image" src="https://github.com/user-attachments/assets/ad7fcae6-1367-4d86-bade-c0d34e3cba86" />
+
+## Want to support me financially? 💞
+
+I have a Patreon here: https://www.patreon.com/c/CholoCMC 😊
