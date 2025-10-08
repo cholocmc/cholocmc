@@ -23,14 +23,14 @@ Follow me on all of my socials: **CHOLOCMC**, as well as [Spotify](https://open.
 
 ## Socials 🌐
 
-- https://github.com/cholocmc
+- https://www.cholocmc.com
+- https://www.github.com/cholocmc
 - https://www.tiktok.com/@cholocmc
 - https://www.facebook.com/cholocmc
 - https://www.threads.com/@cholocmc
 - https://www.instagram.com/cholocmc
 - https://www.youtube.com/@cholocmc
 - https://www.linkedin.com/in/cholocmc
-- https://open.spotify.com/artist/4LAtQG3Q0uA6CkD1gHo6ia
 
 ## Original Music and Covers 🤘
 
