@@ -2,7 +2,7 @@
 
 But you can also call me [Cholo](https://www.cholocmc.com/)
 
-## Content Creator / Freediver / Singer / Dancer / etc. 😎
+## Software Engineer / Content Creator / Freediver / Singer / etc. 😎
 
 Follow me on all of my socials: **CHOLOCMC**, as well as [Spotify](https://open.spotify.com/artist/4LAtQG3Q0uA6CkD1gHo6ia)
 
@@ -38,3 +38,7 @@ Follow me on all of my socials: **CHOLOCMC**, as well as [Spotify](https://open.
 ## Want to support me financially? 💞
 
 I have a Patreon here: https://www.patreon.com/c/CholoCMC 😊
+
+## Regarding Software Engineering...
+
+I've used a wide variety of programming languages and frameworks. Recently, though, I've been using React+Next.js a lot!
