@@ -2,9 +2,9 @@
 
 But you can also call me [Cholo](https://www.cholocmc.com/)
 
-As a Software Engineer, I've used a wide variety of programming languages. Recently, I've been using React and Next.js a lot! 💻
+As a Software Engineer / Technical Lead, I use a variety of programming languages. Recently, I've been using React, Next.js, and Python a lot! 💻
 
-## Software Engineer / Freediver / Content Creator / Musician / etc. 😎
+## Technical Lead / Freediver / Content Creator / Musician / etc. 😎
 
 Follow me on all of my socials: **CHOLOCMC**, as well as [Spotify](https://open.spotify.com/artist/4LAtQG3Q0uA6CkD1gHo6ia)
 
